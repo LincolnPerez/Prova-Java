@@ -10,4 +10,4 @@ poderia ter feito mais, estudado mais como, ter assistido mais vídeos em plataf
    P.S.	Obrigado professor por todas as aulas, vou levar todos momentos, ensinamentos e conselhos
 para toda a minha vida, o senhor é uma pessoa incrível, só tenho que agradecer e aproveitar esses
 últimos momentos em aula, vou sempre levar o senhor como exemplo para a minha vida, e espero
-que mantenhamos o contato, foi uma honra ter te conhecido, muito obrigado por tudo.
+que mantenhamos o contato, foi uma honra ter te conhecido, obrigado por tudo.
