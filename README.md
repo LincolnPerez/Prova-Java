@@ -5,7 +5,7 @@ eu estava enganado, não por Java ser entendível, mas sim, por conseguir aprend
 nas primeiras aulas e conseguir desenvolver o exercícios propostos sem nenhuma dificuldade.
    Não possuo o domínio que almejo ter, mas sei que estou no caminho certo, se fosse para me
 avaliar com base em uma nota, seria 7,5. Consegui desenvolver bem em muitas aulas, mas sei 
-poderia ter feito mais, estudado mais como, ter assistido mais vídeos em plataformas digitais.
+poderia ter feito mais, estudado mais como, ter assistido mais vídeos em plataformas digitais e ler livros de Java.
 
    P.S.	Obrigado professor por todas as aulas, vou levar todos momentos, ensinamentos e conselhos
 para toda a minha vida, o senhor é uma pessoa incrível, só tenho que agradecer e aproveitar esses
